@@ -1,6 +1,10 @@
-# [Start Bootstrap - Landing Page](https://startbootstrap.com/theme/landing-page/)
+# [Get Paid To Read Emails](https://startbootstrap.com/theme/landing-page/)
 
-[Landing Page](https://startbootstrap.com/theme/landing-page/) is a multipurpose landing page template for [Bootstrap](https://getbootstrap.com/) created by [Start Bootstrap](https://startbootstrap.com/).
+If you are searching for ways to make more money but not sure where to start, you can [earn extra income by simply reading your emails!](https://startbootstrap.com/theme/landing-page/)  
+
+That's right, you can get paid to read emails for free and earn extra income with your phone, laptop or tablet device.  
+
+# [Click to get started!](https://getbootstrap.com/) Our program is completely FREE!
 
 ## Preview
 
